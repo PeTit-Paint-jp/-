@@ -1,0 +1,2 @@
+This product is completely free. You don't need to give any credit. For inquiries, please contact ryuutobaibangsabu@proton.me.
+本製品は完全無料となっております。クレジット表記なども必要ありません。お問い合わせはryuutobaibangsabu@proton.meまでお願いします。
